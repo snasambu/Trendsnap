@@ -1,0 +1,2 @@
+# Trendsnap
+Keep it trendy
